@@ -9,6 +9,8 @@
 
 TikTok is one of the most popular social media apps in the world today. TikTok has over one billion active users and is one of the top free app downloads on the Apple App Store and Google Play Store.
 
+[***BARLOG.ORG/TIK - UNLIMITED TIKTOKS FOLLOWERES, LIKES & VIEWS! - CLICK HERE!***](https://barlog.org/tik)
+
 The app has more than 200 million videos uploaded every day, making it one of the biggest social media platforms out there.
 
   TikTok cheats can help you with likes, followers, views, and followers. These cheats work on iOS devices and on Android phones and tablets.
